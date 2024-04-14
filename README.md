@@ -18,7 +18,7 @@ As a software engineer, I like to explore how technology work. I am highly focus
 - 💬 Ask me about anything, I am happy to help you.
 - 📝 I regulary write articles on [Linkedin](https://www.linkedin.com/in/vaishnavi-shelke/), check my articles [here](https://www.linkedin.com/in/vaishnavi-shelke/).
 - 📫 You can reach me : [vaishnavi.shelke.dev@gmail.com](mailto:vaishnavi.shelke.dev@gmail.com).
-- 📝 Here is my [Resume](https://drive.google.com/).
+- 📝 Here is my [Resume](https://drive.google.com/file/d/1hkqVwkLvHPpmF6Ib3DyWIqvBi4IjQSvg/view?usp=sharing).
 
 </br>
 
